@@ -2,7 +2,7 @@
 
 ### I'm Crypto fatalissst
 
-🔭 I’m currently working on Crypto
+🔭 I’m currently working .... :thinking: :world_map:
 
 📫 How to reach me: fatalissst@rambler.ru
 
