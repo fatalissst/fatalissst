@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### I'm Crypto fatalissst
+### I'm fatalissst
 
 🔭 I’m currently working .... :thinking: :world_map:
 
